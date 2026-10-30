@@ -1,0 +1,1 @@
+# gsg-gif-assets
